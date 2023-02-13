@@ -1,2 +1,0 @@
-# trainning
-i can improve
